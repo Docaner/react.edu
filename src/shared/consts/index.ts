@@ -1,0 +1,1 @@
+export { ThemeT, ThemeContextI } from './theme';
