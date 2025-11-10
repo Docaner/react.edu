@@ -1,0 +1,2 @@
+# News card
+![image](https://sun9-34.userapi.com/s/v1/if2/BOG9ufWpD6xuLnwXr9DL4NIq4t7aVpdbvNlSR7sxVWvBCluSioHaQVIo8SNrrt05H8KRj3aknVVnFFsIFfmSTIxi.jpg?quality=95&as=32x14,48x21,72x32,108x48,160x70,240x106,360x158,443x195&from=bu&cs=443x0)

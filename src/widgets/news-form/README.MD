@@ -1,0 +1,2 @@
+# News form
+![image](https://sun9-62.userapi.com/s/v1/ig2/e9W8wZY5C1T_VNpAUbxIAyabzEOTOcYjWEswQKjc7P5ZTXj3mwU3GM6M6quNHahpByMQhR0d8zJ_idBf6cb35IV6.jpg?quality=95&as=32x28,48x42,72x62,108x93,160x138,240x208,360x312,461x399&from=bu&cs=461x0)
